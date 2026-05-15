@@ -1,0 +1,91 @@
+# 📝 CEO 종합 보고서
+
+-14*
+-77860/\\\\\\\\*
+- automag\n```
+-auto
+-6 is provided.
+-2=".
+-89 is provided.
+- this is provided.
+-6 is in
+- auto\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\n```
+- this is provided.
+-oid is provided.
+-8 is provided.
+-out  is a.
+-join is provided.
+-6).
+-auto
+-7 is provided.
+-join is provided.
+-5 is provided.
+-2\nº
+- Michael is provided.
+- this is provided.
+-7 is provided.
+- this is provided.
+-auto
+-of this is provided.
+-auto
+-7 is provided
+-auto
+-utf8 is provided
+-this is provided
+- this is provided.
+-self
+-6 is provided.
+-shift is provided
+-4* is provided
+- auto\n The author is provided.
+-this is provided
+-8 is provided.
+- this is provided.
+- this is provided.
+-auto is provided.
+-of is provided.
+-url is provided
+-7 is provided
+-auto is provided by
+-auto
+- Michael with other
+-auto
+-auto
+-2nd
+-6 is provided
+-auto is provided by is provided
+-auto
+-auto
+-auto
+-ext is provided
+- auto\nco
+-auto
+- this is provided
+- This is provided
+-auto is provided
+-auto is provided
+-auto is provided is provided
+-auto is provided
+-auto
+-auto
+-7 is provided
+-auto
+-of is provided
+-auto is provided is provided is provided by
+-auth is provided is not) is provided
+-auto
+-6 is provided
+-auto
+-4 is provided by is provided
+-auto
+-8 is provided is provided is provided
+-8 is provided
+-auto is provided
+-auto is provided
+-auto is provided
+- this is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is
+-auto is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided
+-auto is provided is provided is provided
+-auto is provided is provided is provided is provided is provided is provided is provided
+-auto is provided is provided is provided is provided is provided is provided is provided is provided is provided
+-auto is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided by is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is done is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is not is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is not is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is not is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided is provided

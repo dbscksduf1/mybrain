@@ -1,0 +1,41 @@
+{
+  "_migrated": true,
+  "_migrated_v2": true,
+  "ceo": {
+    "activatedAt": "2026-05-14T09:41:29.602Z",
+    "seeded": true
+  },
+  "secretary": {
+    "activatedAt": "2026-05-14T09:41:29.602Z",
+    "seeded": true
+  },
+  "youtube": {
+    "activatedAt": "2026-05-14T09:41:29.602Z",
+    "seeded": true
+  },
+  "writer": {
+    "activatedAt": "2026-05-14T09:41:29.602Z",
+    "seeded": true
+  },
+  "designer": {
+    "activatedAt": "2026-05-14T09:41:29.602Z",
+    "seeded": true
+  },
+  "instagram": {
+    "activatedAt": "2026-05-14T09:41:29.602Z",
+    "seeded": true
+  },
+  "business": {
+    "activatedAt": "2026-05-14T09:41:29.602Z",
+    "seeded": true
+  },
+  "developer": {
+    "activatedAt": "2026-05-14T09:41:29.602Z",
+    "seeded": true
+  },
+  "researcher": {
+    "activatedAt": "2026-05-14T09:41:29.602Z",
+    "seeded": true
+  },
+  "_migrated_v3": true
+}
